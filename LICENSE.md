@@ -1,4 +1,4 @@
-
+automatic steal the brainrot base Scripts offers the most advanced steal the brainrot base Script, with private server access and god mode. Perfect
 
 
 
